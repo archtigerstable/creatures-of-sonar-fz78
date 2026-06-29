@@ -1,4 +1,4 @@
-
+Experience aura ascension like never before with aura ascension Scripts vip, the #1 Script. Includes auto-upgrade and one-hit kill for unbeatable
 
 
 
